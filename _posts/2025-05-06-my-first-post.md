@@ -1,6 +1,5 @@
 ---
-title: "Welcome to Tactile"
+title: "My First Blog Post"
 date: 2025-05-06
 ---
-
-This is my first post using the Tactile theme!
+Hello, this is my first post on my blog!
