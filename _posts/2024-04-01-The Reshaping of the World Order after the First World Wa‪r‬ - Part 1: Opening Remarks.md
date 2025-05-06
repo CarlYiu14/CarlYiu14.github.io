@@ -82,5 +82,3 @@ Therefore, if the Japanese system is considered superior, or the Meiji Restorati
 However, China itself is also adaptable. If you place it among the Soviet-led camp of challengers, in fact it is also adaptive. Just as the Taliban burned the Buddha of Bamiyan—it was adapted to the living conditions of Islamic extremism, although it was not adaptive to the rest of the world. The Red Guards smashed the Confucian temple—which was also adapted to the micro-ecological environment of the various factions of the Red Guards, although it was not adapted to the international environment.
 
 Only when you understand these things can you understand the true motives of various actors in history.
-
-Well, so much for the opening remarks. Thank you for listening. This is a podcast series produced by Luminous Society. Luminous Society provides you with an alternative historical narrative.
