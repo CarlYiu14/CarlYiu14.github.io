@@ -1,5 +1,6 @@
 ---
-title: Carly's Blog
+title: Welcome to My Blog
 ---
+# Hello!
 
-Welcome to my blog! This is a space where I share notes, reflections, and learning experiences.
+This is my personal blog powered by GitHub Pages.
