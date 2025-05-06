@@ -1,6 +1,6 @@
 ---
-title: Welcome to My Blog
+layout: home
+title: Carly's Blog
 ---
-# Hello!
 
-This is my personal blog.
+Welcome to my blog! This is a space where I share notes, reflections, and learning experiences.
