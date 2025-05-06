@@ -1,6 +1,3 @@
 title: Carly's Blog
-description: A minimal blog about thoughts and ideas.
-theme: jekyll-theme-time-machine
-
-author: Carly Yiu
-email: carlyiu14@gmail.com
+description: My personal thoughts and notes
+theme: minima
