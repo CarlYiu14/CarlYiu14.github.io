@@ -44,3 +44,43 @@ This is the distinction between the short 20th century and the long 19th century
 The end of the Cold War in 1989 ended the short 20th century. The period from 1918 to 1989—usually referred to as the short 20th century in the West—was an extremely dangerous window of human history. It is fair to say that from the tribal era to the present, the period when humans were most likely to be extinct or completely degenerate into barbarians was this short 20th century.
 
 This short 20th century began with the birth of the USSR and collapsed with the collapse of the Soviet Union. But many problems remained—for example, Russia and Ukraine, China’s Diaoyu Islands, South China Sea, and Taiwan issues—are actually negative legacies left to the 21st century by the short-lived 20th century. These legacies are heavy baggage for the 21st century that is a huge burden on the new international system established after the end of the Cold War.
+
+Without these burdens, it would be easier to establish the new world order after the end of the Cold War on the basis of a more civilized norm like the 19th century.
+
+The establishment of an international system is a crucial matter that Chinese readers often underestimate. If you are a graduate of Chinese history, you may get the wrong impression that the birth and development of a country and the people's well-being are mainly dependent on internal policies.
+
+This is obviously a viewpoint propagated by the “Rise of the Great Powers” and similar TV series promoted by Chinese authorities. These propaganda products argue that the British or the French adopted certain policies or set up institutions that resulted in their empowerment, or that the Spanish or others made wrong policy decisions that led to their weakening. The most classic argument is the contrast between China and Japan: it is said that Japan rose due to the Meiji Restoration while China declined due to the Qing dynasty’s refusal to reform.
+
+But this is only part of the story—and a less important part at that. A country’s domestic policies and systems are heavily affected by the international system. European countries are well aware of this. The interaction between their internal constitution and the international system is inseparable.
+
+The key to the ebb and flow of the fate of the Qing dynasty and Japan was that Japan was keen on joining the international system from the beginning, to become a top student in the system, while the Qing dynasty clung to its own concept of the world state. It insisted that the dynasty by itself was an international system, and that the Qing was the co-master of the world. It was very reluctant to participate in the international system dominated by the Western powers.
+
+Although in the era of Li Hongzhang, the Qing dynasty had a greater chance than Japan of joining the international system with Britain at its core—in fact, the British repeatedly extended invitations for it to do so—the Qing refused again and again. The Japanese, even though not taken seriously by the British, couldn’t wait to join the international system.
+
+Eventually, with the conclusion of the Sino-Japanese War and the Russo-Japanese War, Japan secured its status in the international system by joining the Eight-Nation Alliance in 1900 and was finally accepted into the system.
+
+Inoculated with false nationalistic doctrine, Chinese people often view this incident as an imperialistic humiliation. In fact, from Japan’s perspective, its behavior was of the same nature as China’s participation in the UN peacekeeping force in Liberia. You used to be a less important country and were not invited to participate in international affairs. Now your status is elevated, and you are considered a civilized people, so you are invited for peacekeeping missions in barbaric Somalia or other places.
+
+For Japan, the Eight-Nation Alliance was the equivalent of today’s so-called multinational intervention force, which was dispatched to the barbaric areas where the Boxer Rebellion occurred to maintain international order. This was the glory of Japan—it proved that Japan had passed the test and had become a part of civilized people from then on.
+
+Since Japan joined the international system, the Meiji Restoration was able to be implemented smoothly. The Qing dynasty, refusing to join the international system, encountered setbacks and disadvantages at every turn.
+
+Only a small percentage of a person’s social status is decided by his own practice; a large part is shaped by the people around him. For example, if you are sitting in a train, even if you don’t make any effort, you can still move fast. If you run on your own feet on the ground, even if you try very hard, you still won’t outrun the person in the train.
+
+The Western-centric international system is such a fast train. Even if you are not very capable, it is easy for you to achieve your goals because you take this free ride. It is difficult for you to go anywhere if you don’t take this free ride.
+
+After the Cold War, history repeated itself. Although Japan was a defeated country, it once again joined the international system—with the United States at its core. While China joined the Soviet-led challenger camp through the civil war in 1948.
+
+Déjà vu again: Japan took the train, and China ran on foot. This situation determined many of China’s subsequent internal policies. It was never a purely domestic game. Both the domestic and the international variables have to be taken into the equation.
+
+Few Chinese look at the world through the perspective of the international system. The international system is as important to a country as the ecological environment is to living organisms.
+
+From the perspective of Darwinian evolutionism, what is adaptation and what is maladaptation is not determined by the creature itself. A whale can be regarded as adaptive in the water because its streamlined body is adaptable in the sea. If it lived on land, it would not be adaptive. If whales are considered adaptive, it is because the marine environment in which they dwell is taken into consideration.
+
+Therefore, if the Japanese system is considered superior, or the Meiji Restoration correct, it can only be understood by looking at the international system and capitalist environment in which it took place. When the international system, international coordinationism, and capitalism were the fundamental rules of the game, the Japanese system was adaptive—but the Chinese system was not.
+
+However, China itself is also adaptable. If you place it among the Soviet-led camp of challengers, in fact it is also adaptive. Just as the Taliban burned the Buddha of Bamiyan—it was adapted to the living conditions of Islamic extremism, although it was not adaptive to the rest of the world. The Red Guards smashed the Confucian temple—which was also adapted to the micro-ecological environment of the various factions of the Red Guards, although it was not adapted to the international environment.
+
+Only when you understand these things can you understand the true motives of various actors in history.
+
+Well, so much for the opening remarks. Thank you for listening. This is a podcast series produced by Luminous Society. Luminous Society provides you with an alternative historical narrative.
