@@ -1,7 +1,9 @@
 ---
-The Reshaping of the World Order after the First World Wa‪r‬ - Part 1: Opening Remarks
+title: "The Reshaping of the World Order after the First World Wa‪r‬ - Part 1: Opening Remarks"
 date: 2024-04-01
+layout: post
 ---
+
 I would treat World War One as the watershed. To European readers, that is a familiar concept. To them, it goes without saying that the First World War, not the Second World War, marked the turning point of civilization from prosperity to decline.
 
 To Chinese readers, at least those who have received modern Chinese education, this idea may be relatively unfamiliar, since World War One's direct impact seems not as significant as that of World War Two. But because the dynamic center of the world is in Europe, and the source of evolution of the world system is also in Europe, if we want to have a more holistic vision, we must pay attention to World War One.
